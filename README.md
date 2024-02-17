@@ -2,7 +2,7 @@
 
 Currently building.
 
-Please email me at my personal email, bilalmalik4321@gmail.com!
+Please email me @ bilalmalik4321@gmail.com!
 
 
 
